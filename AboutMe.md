@@ -1,0 +1,1 @@
+- Worked in Warehouse, Restaurant, and Casino Industries. 
